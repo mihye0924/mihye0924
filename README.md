@@ -1,5 +1,3 @@
-### Hi there 👋
-
 <img src="https://capsule-render.vercel.app/api?type=waving&height=200&text=Mihye&fontAlign=74&fontAlignY=40&color=gradient" />
 
 ## Skils
