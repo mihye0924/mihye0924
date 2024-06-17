@@ -1,5 +1,5 @@
-![images](https://github.com/mihye0924/mihye0924/assets/71968785/62ac8721-4696-48d0-9592-a23d2e0df21d)
 
+![download](https://github.com/mihye0924/mihye0924/assets/71968785/e5d0c86f-491d-419b-9e2a-216d8de81e81)
 
 ## Skils
 
