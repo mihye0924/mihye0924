@@ -1,7 +1,7 @@
-
-![download](https://github.com/mihye0924/mihye0924/assets/71968785/e5d0c86f-491d-419b-9e2a-216d8de81e81)
+![image](https://github.com/mihye0924/mihye0924/assets/71968785/6166d07d-72e3-4671-b330-4b588b02c4a1)
 
 ## Skils
+
 
 stack  
 
